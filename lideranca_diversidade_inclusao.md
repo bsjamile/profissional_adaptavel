@@ -1,0 +1,1 @@
+# Necessidade de trabalhar a diversidade e inclusão no contexto de liderança

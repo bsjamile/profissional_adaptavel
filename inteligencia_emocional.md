@@ -1,0 +1,1 @@
+# Inteligênca Emocional nas relações de trabbalho e para lidar com a cultura organizacional das instituições
